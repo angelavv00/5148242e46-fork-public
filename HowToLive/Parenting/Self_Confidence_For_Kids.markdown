@@ -4,7 +4,7 @@ My daughter is an introvert, shy and emotional (I am too) therefore I would love
 ## AUTHOR: 
 Anita has studied developmental psychology (child development) to postgraduate level and is an accredited Triple P® parenting coach.
 1. https://anitacleare.co.uk/building-childrens-self-esteem/
-### NOTES:
+### Notes from research materials relevant for our situation:
 * Break difficult tasks down into small steps and acknowledge effort, progress and achievement. Create a learning culture in which failure is good – getting things wrong is positive as it helps us know what not to do next time!
 * Involve children in decision-making and teach them problem-solving skills to increase their sense of competence. Let them take healthy risks so they can learn through experience.
 * One of the ways children develop self-esteem is by hearing good things about themselves. But praise only works if it is specific and believable. If your son plays really badly in a football match and you tell him he played brilliantly it is not believable and it may make him less likely to believe your praise in future. Focus on real achievements and on effort (“I could see that was a really tough match. Well done for not giving up and for battling all the way to then end.”) Constant overblown praise can inhibit learning (child’s conclusion: “I am already good enough“), destroy trust (child’s conclusion: “I don’t believe your opinion of me as it clearly isn’t based on reality“) and undermine self-esteem by creating a fear of failure (child’s conclusion: “I always need to do things perfectly to be approved of“). Equally, harsh negative criticism is likely to have a negative result.
